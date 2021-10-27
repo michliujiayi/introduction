@@ -1,5 +1,7 @@
 # Hello World!
-This is my first assignment in DS105. Let me tell you a little bit about myself.
+This is my first assignment in DS105! Let me tell you a little bit about myself.
+
+![63DE3E31-DDFA-4C4B-BD2C-6AF9EF68FC75](https://user-images.githubusercontent.com/92088621/139145970-4ed03310-dc86-4c1d-9ce0-9d1e50c13b33.JPG)
 
 My name is Michelle Liu and I am 20 years old. I am originally from Hong Kong but I have lived in the United States for the past 6 years. My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. I am also interested in Data Science and Philosophy.
 
