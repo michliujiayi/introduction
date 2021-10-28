@@ -13,13 +13,16 @@ In 2013, my family and I moved to Shenzhen, China. I also went to an internation
 
 I spent about 3 years in China before I went to boarding school in Worcester, Massachusetts. I learned a lot from being a boarding student; I became very independent and organized. There, I continued playing volleyball and played for the school team.
 
+![1624906508453](https://user-images.githubusercontent.com/92088621/139284926-5a7a3518-036b-46d4-b21e-e51eab9b29c1.jpeg)
 
+After my first year in high school, my family then moved to New Jersey. Although that is where I live, I wouldn't call New Jersey home. I have spent more time at my university in New York more than I have ever spent in New Jersey. 
 
-I have lived in the United States for the past 6 years. My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. I am also interested in Data Science and Philosophy.
+My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. 
+
 
 ![FullSizeRender](https://user-images.githubusercontent.com/92088621/139146439-09a6042b-859b-4a1c-b9cf-f41151f983fd.JPG)
 
-After my first year in high school, my family then moved to New Jersey. Although that is where I live, I wouldn't call New Jersey home. I have spent more time at my university in New York more than I have ever spent in New Jersey.
+
 
 ![IMG_1128](https://user-images.githubusercontent.com/92088621/139146874-b12e25d5-93b1-4bd3-9357-2f9b1cff6b98.jpg)
 
