@@ -9,14 +9,17 @@ My name is Michelle Liu and I am 20 years old. I was born and raised in Hong Kon
 
 In 2013, my family and I moved to Shenzhen, China. I also went to an international school there under the American curriculum. I played a variety of sports there, they include badminton, volleyball, basketball, touch rugby, and track. Although I didn't pursue these sports after middle school, I enjoyed them nevertheless. 
 
+![E31DD5F0-7E50-41F4-AFCA-EA2065A9BAF3](https://user-images.githubusercontent.com/92088621/139284178-f0147768-3343-489c-ba0b-b5599590f9b1.JPG)
 
-I spent about 3 years there before I went to boarding school in Worcester, Massachusetts. 
+I spent about 3 years in China before I went to boarding school in Worcester, Massachusetts. I learned a lot from being a boarding student; I became very independent and organized. There, I continued playing volleyball and played for the school team.
+
+
 
 I have lived in the United States for the past 6 years. My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. I am also interested in Data Science and Philosophy.
 
 ![FullSizeRender](https://user-images.githubusercontent.com/92088621/139146439-09a6042b-859b-4a1c-b9cf-f41151f983fd.JPG)
 
-I was born and raised in Hong Kong, and attended international schools my entire life. My family and I lived in Shenzhen, China for 3 years before I attended boarding school in Worcester, Massachussetts. After my first year in high school, my family then moved to New Jersey. Although that is where I live, I wouldn't call New Jersey home. I have spent more time at my university in New York more than I have ever spent in New Jersey.
+After my first year in high school, my family then moved to New Jersey. Although that is where I live, I wouldn't call New Jersey home. I have spent more time at my university in New York more than I have ever spent in New Jersey.
 
 ![IMG_1128](https://user-images.githubusercontent.com/92088621/139146874-b12e25d5-93b1-4bd3-9357-2f9b1cff6b98.jpg)
 
