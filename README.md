@@ -17,15 +17,10 @@ I spent about 3 years in China before I went to boarding school in Worcester, Ma
 
 After my first year in high school, my family then moved to New Jersey. Although that is where I live, I wouldn't call New Jersey home. I have spent more time at my university in New York more than I have ever spent in New Jersey. 
 
-My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. 
+My home university is Hamilton College, and it is located in Clinton, New York. I study Economics both there and here at LSE. It is a very beautiful campus, especially during autumn and winter.
 
+![wiabrilxwmwpjewz](https://user-images.githubusercontent.com/92088621/139285355-079f21f8-3a63-4087-974d-ecb4309be72f.jpeg)
+
+It is currently my third year of university, and I am so happy that I am spending it here at LSE. I am incredibly grateful for this opportunity and I can't wait to see what this year has in store!
 
 ![FullSizeRender](https://user-images.githubusercontent.com/92088621/139146439-09a6042b-859b-4a1c-b9cf-f41151f983fd.JPG)
-
-
-
-![IMG_1128](https://user-images.githubusercontent.com/92088621/139146874-b12e25d5-93b1-4bd3-9357-2f9b1cff6b98.jpg)
-
-I am a rather dynamic person; I switch hobbies and gain/lose interest rather quickly. When I was younger, I danced ballet, did gymnastics, swimming, badminton, and even taekwando for 6 months. As I grew older, I began to lose interest in my activities, so now I have a few hobbies that I enjoy regularly. They include volleyball, listening to music, origami, and board games. I recently picked up an interest in philosophy books and I also enjoy being in nature. 
-
-Although I'm not 100% certain about my future plans, I am trying to be as present as possible. I am incredibly grateful for the opportunity to study at LSE and live in one of the biggest cities in the world. I can't wait for what this year has in store!
